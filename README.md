@@ -1,4 +1,4 @@
-# Olá, eu sou o Gustavo Schimming! 🇾🇪
+# Olá, eu sou o Gustavo Schimming!
 
 ### 👨‍💻 Futuro Desenvolvedor de Sistemas | Estudante SENAI
 
